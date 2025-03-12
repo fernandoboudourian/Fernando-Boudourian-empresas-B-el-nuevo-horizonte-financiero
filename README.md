@@ -1,1 +1,2 @@
 # Fernando-Boudourian-empresas-B-el-nuevo-horizonte-financiero
+Las Empresas B ya no son una alternativa, sino un modelo consolidado en el mundo empresarial. Con certificaciones de impacto, equilibran crecimiento económico con sostenibilidad. La inversión con criterios ESG crece y atrae a fondos y bancos. Mientras el mercado avanza, las regulaciones y consumidores impulsan esta transformación. La certificación B podría ser clave en el futuro de las finanzas.
